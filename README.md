@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @goodArthas
+- 👀 I’m interested in make life better
+- 🌱 I’m currently learning to be an android programmer
+- 📫 How to reach me: Telegram - @goodArthas, Instagram - @bowtomeplz, Discrord - MegaMan#3460
