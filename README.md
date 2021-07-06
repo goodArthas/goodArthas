@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @goodArthas
 - 👀 I’m interested in make life better
-- 🌱I’m currently learning to be an android programmer. In my hobbies I like to learn electric guitar play, WarHammer 40k, watch video on youtube how to build house and read book to electrics
+- 🌱I’m currently learning to be an android programmer. In my hobbies WarHammer 40k, watch video on youtube how to build house and read book to electrics
 - 📫 How to reach me: Telegram - @goodArthas, Instagram - @bowtomeplz, Discrord - MegaMan#3460
